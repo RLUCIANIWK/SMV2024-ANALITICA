@@ -1,1 +1,1 @@
-# SMV2024-ANALITICA
+# SMV2024-Analitica
